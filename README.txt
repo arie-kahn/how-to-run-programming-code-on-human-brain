@@ -144,9 +144,6 @@ https://www.linkedin.com/in/ariekahn/
 email2arie att yahoo dott com
 ariework att gmail dott com
 
-If you want to fund my research or to hire me for such research or for some other interesting projects, you are welcome. We can discuss it.
-
 © 2020 Arie Kahn. Some Rights Reserved.
 This work is licensed under CC-BY 4.0:
 https://creativecommons.org/licenses/by/4.0/
-
