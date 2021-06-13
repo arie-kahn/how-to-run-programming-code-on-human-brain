@@ -174,7 +174,7 @@ My name is Arie Kahn. I live in Israel. My social media accounts and contact inf
 https://www.facebook.com/arie.kahn.1
 https://www.linkedin.com/in/ariekahn/
 https://github.com/arie-kahn
-https://ariekahn.com/
+https://ariekahn.com
 ariework_gmail_com (replace underscores by @ and . respectively)
 
 * The new virus and asthma cautiously optimistic update 2021: probably no elevated risk. Personal update: I got two shots in January 2021.
